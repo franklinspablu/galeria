@@ -1,1 +1,1 @@
-Página sobre lee sin
+Galeria de imagenes
